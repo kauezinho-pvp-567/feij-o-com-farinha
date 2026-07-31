@@ -5,4 +5,4 @@
 </main>
 <h2>mamonas ao vivo</h2>
 <p>por:mamonas asassinas</p>
-<p>"pelados em sntos", dos mamonas aassinas foi lançado em 1995</p>
+<p>"pelados em santos", dos mamonas aassinas foi lançado em 1995</p>
